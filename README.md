@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **mohdtalib.afsar@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/110Kd990FFLKYc9Q1Y-EdNvkGxJjeQ8Mo/view?usp=sharing](https://drive.google.com/file/d/110Kd990FFLKYc9Q1Y-EdNvkGxJjeQ8Mo/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/110Kd990FFLKYc9Q1Y-EdNvkGxJjeQ8Mo/view?usp=sharing](https://drive.google.com/file/d/1FXD0ezseUvFK0xWEi9MPWQOt8qS5UuFp/view?usp=drive_link)
 
 - ⚡ Fact **I am a Quick learner**
 
